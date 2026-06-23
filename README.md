@@ -6,7 +6,7 @@ Contact Us
 
 If you have a question, found a bug, or have feedback, email us at:
 
-[carsonoevanso@gmail.com]
+[mnemomemory@proton.me]
 
 We try to respond within a few days.
 
